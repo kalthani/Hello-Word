@@ -4,4 +4,4 @@
 
 - 📫 How to reach me:
 -                   🐦 Twitter: @kalthani
--                   📨 Email:   khalifa.althani@gmail.com
+-                   📨 Email:   k@1hak.com
